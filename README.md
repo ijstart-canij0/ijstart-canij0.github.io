@@ -1,6 +1,6 @@
 # ?j.start.cànon
 
-[![ij.start.canon](Get-Started-Now-Button3.png)](http://canoncom.ijsetup.s3-website-us-west-1.amazonaws.com)
+
 
 ##  Where To Buy Cànon Printer?
 
