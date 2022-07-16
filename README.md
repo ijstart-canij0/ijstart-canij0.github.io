@@ -1,5 +1,3 @@
-# ?j.start.cànon
-
 
 
 ##  Where To Buy Cànon Printer?
